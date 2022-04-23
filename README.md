@@ -6,6 +6,7 @@ So NFT is booming and many people are making so much money by fliping NFTs. But 
 Link to the tutorial video: https://youtu.be/Z7FhGgVbzOY
 
 __
+
 ⭐️ You can get a blockchain domain with my affiliate link here: https://bit.ly/nft-crypto-domains
 
 ⭐️ If you would like to buy me a coffee, well thank you very much that is mega kind! : https://www.buymeacoffee.com/saeidkai
